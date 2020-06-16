@@ -22,3 +22,15 @@ But when **Little Red Riding Hood** noticed some lovely flowers in the woods, sh
 **Little Red Riding Hood** was enjoying the ward summer day so much, that she didn't notice a dark shadow approaching out of the forest behind her..
 
 Suddenly, the wolf appeared beside her.
+
+![Ravan-the-ultimate-conqueror](Ravan-the-ultimate-conqueror.jpg)
+Inorder to conquer the world, Ravan asked Brahma for the gift of immortality,but Brahma said, 
+>*"Death is certain, my  child!". You must die after being born into this world. So I am unable to give you the blessing of immortality. You may ask for something else!"*
+
+Then the ambitiuos Ravan said- 
+> *"O Brahma, May no god or heavenly spirit kill me. Oh Lord! may no demon, monster or beast defaet me! Give me the blessing of victory over all these!"*
+
+Brahma also said-
+> *"Tathasthu! and he disappeared.*
+
+Blinded by his power and might, the foolish Ravan thought no mankind could harm him. Man is like a hunt for him, which can be easily trampled and defeated. His mistake was that he considered mankind weak. That is why Shri Ram was able to cut of all his 10 head and kill him ruthlessly.
