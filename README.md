@@ -35,3 +35,5 @@ Brahma also said-
 > *"Tathasthu! and he disappeared.*
 
 Blinded by his power and might, the foolish Ravan thought no mankind could harm him. Man is like a hunt for him, which can be easily trampled and defeated. His mistake was that he considered mankind weak. That is why Shri Ram was able to cut of all his 10 head and kill him ruthlessly.
+=======
+# Gold island boat
