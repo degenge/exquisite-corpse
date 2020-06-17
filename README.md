@@ -26,7 +26,8 @@ Suddenly, the wolf appeared beside her.
 ![Ravan-the-ultimate-conqueror](Ravan-the-ultimate-conqueror.jpg)
 
 Inorder to conquer the world, Ravan asked Brahma for the gift of immortality,but Brahma said, 
->*"Death is certain, my  child!". You must die after being born into this world. So I am unable to give you the blessing of immortality. You may ask for something else!"*
+>*"Death is certain, my  child!". You must die after being born into this world. So I am unable to give you the blessing of immortality. You may ask for something else!"*King of Lanka "Ravan"
+
 
 Then the ambitiuos Ravan said- 
 > *"O Brahma, May no god or heavenly spirit kill me. Oh Lord! may no demon, monster or beast defaet me! Give me the blessing of victory over all these!"*
